@@ -17,3 +17,4 @@
 
 **output**:
 
+<img width="1440" alt="Image" src="https://github.com/user-attachments/assets/ad4682d1-d8e3-43d7-b3a2-a4efd48d8fbe" />
